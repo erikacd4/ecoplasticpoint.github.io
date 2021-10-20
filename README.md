@@ -1,1 +1,0 @@
-# ecoplasticpoint.github.io
